@@ -1,4 +1,4 @@
-# 
+# Professional Nitro PDF scripts for Mac OS | New Nitro PDF scripts for PC Windows. Featuring irs e-file and approval workflows — optimized for maximum performance on every platform.
 
 
 
